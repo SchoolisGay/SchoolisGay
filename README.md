@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SchoolisGay 
+- 👀 I’m interested in school cheats
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me email readqtb10@hotmail.com
